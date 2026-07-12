@@ -91,4 +91,4 @@ financial inclusion across Africa.
 LinkedIn: https://linkedin.com/in/erick-mauti
 
 
-Email: erickmauti244@gmail.com# Erick-M25-
+Email: erickmauti244@gmail.com# Erick-M25
